@@ -16,11 +16,7 @@
   <a href="https://www.tiktok.com/@vo1nn_?_t=8h8t7e7N8Wl&_r=1" target="_blank">
    <img alt="Static Badge" src="https://img.shields.io/badge/TikTok-white?style=for-the-badge&logo=TikTok&logoColor=white&color=black">
  </div>
-
    
-   <div align="center">  
-   <img src="https://komarev.com/ghpvc/?username=von-ess&style=for-the-badge&color=808884&label=✠"/>
-
   ________________________________________________________________________________________________________________________________________________________
    <img src="https://i.pinimg.com/736x/c0/57/06/c057062c2bd5bb30b1e5e1f79ee17e95.jpg" width="250" align="right" style="margin-left: 20px;"/>
 <br/>
@@ -36,5 +32,9 @@
 <div align="center">  𝑫𝑵𝑰:: 
 
 𝚃𝚑𝚘𝚜𝚎 𝚠𝚑𝚘 𝚌𝚘𝚗𝚝𝚛𝚘𝚕 𝚎𝚟𝚎𝚛𝚢 𝚜𝚝𝚎𝚙 𝚊𝚗𝚍 𝚏𝚘𝚛𝚌𝚎 𝚘𝚝𝚑𝚎𝚛𝚜 𝚝𝚘 𝚍𝚘 𝚝𝚑𝚒𝚗𝚐𝚜 𝚝𝚑𝚎𝚒𝚛 𝚠𝚊𝚢; 𝚘𝚟𝚎𝚛𝚕𝚢 𝚓𝚎𝚊𝚕𝚘𝚞𝚜 𝚙𝚎𝚘𝚙𝚕𝚎; 𝚜𝚝𝚊𝚕𝚔𝚎𝚛𝚜; 𝚘𝚟𝚎𝚛𝚕𝚢 𝚑𝚢𝚙𝚎𝚛𝚊𝚌𝚝𝚒𝚟𝚎 𝚊𝚗𝚍 𝚋𝚘𝚛𝚒𝚗𝚐; 𝚙𝚎𝚘𝚙𝚕𝚎 𝚠𝚑𝚘 𝚒𝚖𝚙𝚘𝚜𝚎 𝚝𝚑𝚎𝚒𝚛 𝚛𝚎𝚕𝚊𝚝𝚒𝚘𝚗𝚜𝚑𝚒𝚙𝚜 𝚊𝚗𝚍 𝚜𝚎𝚡𝚞𝚊𝚕 𝚘𝚛𝚒𝚎𝚗𝚝𝚊𝚝𝚒𝚘𝚗 𝚘𝚗 𝚘𝚝𝚑𝚎𝚛𝚜; 𝚊𝚗𝚢 𝚙𝚊𝚒𝚛𝚒𝚗𝚐𝚜 𝚠𝚒𝚝𝚑 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛𝚜 (𝚞𝚗𝚕𝚎𝚜𝚜 𝚒𝚝’𝚜 𝚌𝚊𝚗𝚘𝚗); 𝚋𝚞𝚕𝚕𝚒𝚎𝚜 𝚊𝚗𝚍 𝚜𝚎𝚗𝚜𝚒𝚝𝚒𝚟𝚎, 𝚎𝚊𝚜𝚒𝚕𝚢 𝚘𝚏𝚏𝚎𝚗𝚍𝚎𝚍 𝚙𝚎𝚘𝚙𝚕𝚎; 𝚙𝚎𝚘𝚙𝚕𝚎 𝚠𝚑𝚘 𝚏𝚘𝚛𝚌𝚎 𝚘𝚝𝚑𝚎𝚛𝚜 𝚝𝚘 𝚌𝚘𝚖𝚖𝚞𝚗𝚒𝚌𝚊𝚝𝚎 𝚠𝚒𝚝𝚑 𝚝𝚑𝚎𝚖; 𝚙𝚎𝚘𝚙𝚕𝚎 𝚠𝚑𝚘 𝚍𝚎𝚕𝚒𝚋𝚎𝚛𝚊𝚝𝚎𝚕𝚢 𝚝𝚛𝚢 𝚝𝚘 𝚙𝚛𝚘𝚟𝚘𝚔𝚎 𝚎𝚖𝚘𝚝𝚒𝚘𝚗𝚜; 𝚝𝚑𝚘𝚜𝚎 𝚠𝚑𝚘 𝚍𝚘𝚗’𝚝 𝚏𝚞𝚕𝚕𝚢 𝚎𝚡𝚙𝚛𝚎𝚜𝚜 𝚝𝚑𝚎𝚒𝚛 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚜; 𝚝𝚑𝚘𝚜𝚎 𝚠𝚑𝚘 𝚞𝚜𝚎 𝚙𝚒𝚝𝚢 𝚊𝚜 𝚊 𝚠𝚎𝚊𝚙𝚘𝚗; 𝚙𝚎𝚘𝚙𝚕𝚎 𝚠𝚑𝚘 𝚍𝚘𝚗’𝚝 𝚔𝚗𝚘𝚠 𝚝𝚑𝚎 𝚠𝚘𝚛𝚍 “𝚗𝚘.”𝚖𝚊𝚗𝚒𝚙𝚞𝚕𝚊𝚝𝚘𝚛𝚜; 𝚝𝚛𝚊𝚗𝚜𝚐𝚎𝚗𝚍𝚎𝚛 𝚙𝚎𝚘𝚙𝚕𝚎 𝚠𝚑𝚘 𝚌𝚑𝚊𝚗𝚐𝚎 𝚝𝚑𝚎𝚒𝚛 𝚐𝚎𝚗𝚍𝚎𝚛 𝚒𝚗 𝚎𝚟𝚎𝚛𝚢 𝚖𝚎𝚜𝚜𝚊𝚐𝚎; 𝚙𝚎𝚘𝚙𝚕𝚎 𝚒𝚗𝚜𝚞𝚕𝚝𝚒𝚗𝚐 𝚛𝚎𝚕𝚒𝚐𝚒𝚘𝚗 𝚊𝚗𝚍 𝚗𝚊𝚝𝚒𝚘𝚗.
+
+ <div align="center">  
+   <img src="https://komarev.com/ghpvc/?username=von-ess&style=for-the-badge&color=808884&label=✠"/>
+
 
 

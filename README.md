@@ -4,13 +4,22 @@
     
 <p align="center">
   <img width="700" height="250" alt="image" src="https://i.pinimg.com/736x/08/40/13/0840132e20692e41ea8455c876a88a3c.jpg" />
-    
+  
+ 
 <p align="center">
   <a href="https://t.me/endl6nvyssx" target="_blank">
-  <img alt="Static Badge" src="https://img.shields.io/badge/telegram-white?style=for-the-badge&logo=Telegram&logoColor=white&color=black">
-  
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=von-ess&style=for-the-badge&color=808884&label=✠"/>
+    <img alt="Static Badge" src="https://img.shields.io/badge/telegram-white?style=for-the-badge&logo=Telegram&logoColor=white&color=black">
+  </a>
+  <a href="https://discordapp.com/users/endless.envy." target="_blank">
+   <img alt="Static Badge" src="https://img.shields.io/badge/discord-white?style=for-the-badge&logo=Discord&logoColor=white&color=black">
+  </a>
+  <a href="https://www.tiktok.com/@vo1nn_?_t=8h8t7e7N8Wl&_r=1" target="_blank">
+   <img alt="Static Badge" src="https://img.shields.io/badge/TikTok-white?style=for-the-badge&logo=TikTok&logoColor=white&color=black">
+ </div>
+
+   
+   <div align="center">  
+   <img src="https://komarev.com/ghpvc/?username=von-ess&style=for-the-badge&color=808884&label=✠"/>
 
   ________________________________________________________________________________________________________________________________________________________
 

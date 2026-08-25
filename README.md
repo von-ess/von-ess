@@ -13,7 +13,7 @@
   <a href="https://discordapp.com/users/endless.envy." target="_blank">
    <img alt="Static Badge" src="https://img.shields.io/badge/discord-white?style=for-the-badge&logo=Discord&logoColor=white&color=black">
   </a>
-  <a href="https://www.tiktok.com/@vo1nn_?_t=8h8t7e7N8Wl&_r=1" target="_blank">
+  <a href="https://www.tiktok.com/@von.oo?_t=8h8t7e7N8Wl&_r=1" target="_blank">
    <img alt="Static Badge" src="https://img.shields.io/badge/TikTok-white?style=for-the-badge&logo=TikTok&logoColor=white&color=black">
  </div>
    

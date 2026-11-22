@@ -11,7 +11,9 @@
 
   <p style="white-space: pre-wrap; line-height: 1.8;">
     ${\color{#ffc7e4}\text{She}}$  ${\color{#96848d}\text{/}}$  ${\color{#ff8ec8}\text{Her}}$
+    
     ${\color{#ffc7e4}\text{isfj}}$   ${\color{#ffc7e4}\text{9w1}}$ 
+    
     ${\color{#96848d}\text{so9}}$   ${\color{#ff8ec8}\text{sp5}}$  ${\color{#ff8ec8}\text{sx3}}$
   </p>
 

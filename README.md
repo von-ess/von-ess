@@ -10,7 +10,7 @@
   <div align="center">
 
   <p style="white-space: pre-wrap; line-height: 1.8;">
-    ${\color{#ffc7e4}\text{She}}$  ${\color{#322d30}\text{/}}$  ${\color{#ff8ec8}\text{Her}}$
+    ${\color{#ffc7e4}\text{She}}$  ${\color{#96848d}\text{/}}$  ${\color{#ff8ec8}\text{Her}}$
   </p>
 
   </div>
